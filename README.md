@@ -9,6 +9,11 @@ Tour 2day 1night at mt olympic national park, Sat 29 Jun - Sun 30 Jun 2019
  - nón
  - mosquito spray
 
+## Bookmark trên Google maps
+ - Sol Duc falls https://goo.gl/maps/NEFwL5EuoWBbjq9r5
+ - Lake Crescent https://goo.gl/maps/r9D5M66SLryJPGvz8
+ - Royal Victorian Motel https://goo.gl/maps/Wkinge6zq32BAEgx6
+ - Hurricane Ridge https://goo.gl/maps/tuAw3RKSHY5KHxkR9
   
 ## Day 1 Saturday 29 Jun 2019  
   
