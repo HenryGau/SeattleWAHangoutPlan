@@ -2,6 +2,7 @@
 Tour 2day 1night at mt olympic national park, Sat 29 Jun - Sun 30 Jun 2019 
 
 ## Đồ mang theo
+ - National pass entrance pass (either Annual or 1 week)
  - đồ ăn picnic để ăn trưa Day 1 ở Sol Duc Falls
  - xe đổ đầy xăng
  - kem chống nắng
