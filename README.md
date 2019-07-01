@@ -75,7 +75,7 @@ to Oak Table Cafe
 https://goo.gl/maps/t3SGXzTDwL1kxaej8  
 35 miles, 56 min  
   
-- 1h30PM eat lunch at Twana Road House  
+- 1h30PM eat lunch at Oak Table Cafe  
   
 - 3:00PM drive  
 from Oak Table Cafe  
