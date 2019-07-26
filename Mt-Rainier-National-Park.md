@@ -15,9 +15,9 @@ Reflection lake https://goo.gl/maps/L4qLqpSbukoaJmGg9
 
 ## Routes
 
-8:00AM start from Seattle/Bellevue
+7:30AM start from Seattle/Bellevue
 
-10:40AM arrived at 
+10:10AM arrived at 
 Henry M Jackson Visitor Center
 Paradise Rd E, Ashford, WA 98304
 park your car here
@@ -27,9 +27,9 @@ at Henry M Jackson Visitor Center:
  - hike 0.5 miles counter clock wise, visit The Myrtle Falls
  
 
-1:30PM drive down to Reflection lake, take photo
+1:00PM drive down to Reflection lake, take photo
 
-(Optional) 2:00PM visit 
+(Optional) 1:30PM visit Logmire Museum and hike Trail of the Shadows (0.75 miles) on the way out
 
 2:00PM drive back to Seattle
 
