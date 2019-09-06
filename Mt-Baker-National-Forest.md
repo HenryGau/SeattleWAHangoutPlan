@@ -1,5 +1,12 @@
 # 2.5d 2n at Mt Baker National Forest
 
+## Intro
+This is the first part of 2 part series on exploring North Cascade National Park.
+We will explore the Mt Baker National Forest along route Mt Baker Highway (AKA state route 542), north of North Cascade National Park.
+
+Teaser photo
+![img](https://www.wta.org/site_images/hikes/4.jpg-1/@@images/1e8dd6d5-9dc2-4139-8658-7e9de8e91ab7.jpeg)
+
 ## Preparation
  - Cabin (sleep 8) booking link https://www.mtbakerlodging.com/94401/?sd=10%2F04%2F2019&ed=10%2F06%2F2019&oc=8&ch=
 ![img](https://q-cf.bstatic.com/images/hotel/max1280x900/955/95550835.jpg)
@@ -17,7 +24,7 @@ Friday 4th Oct 2019
  
 Saturday 5th Oct 2019
  - 10am have breakfast
- - 11am drive to Picture Lake Path Trailhead
+ - 11am drive to Picture Lake Path Trailhead 
 https://goo.gl/maps/gy7hTgaE5GxWeBZ47
  - spend 30 minutes short walk around the Trail 0.4 mile
  - (optional) hike a Moderate hike  Upper Lodge to Artist Point Trail 3.9 mile 
