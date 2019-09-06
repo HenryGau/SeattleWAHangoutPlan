@@ -1,7 +1,7 @@
 # 2.5d 2n at Mt Baker National Forest
 
 ## Preparation
- - Cabin booking link https://www.mtbakerlodging.com/94401/?sd=10%2F04%2F2019&ed=10%2F06%2F2019&oc=8&ch=
+ - Cabin (sleep 8) booking link https://www.mtbakerlodging.com/94401/?sd=10%2F04%2F2019&ed=10%2F06%2F2019&oc=8&ch=
 ![img](https://q-cf.bstatic.com/images/hotel/max1280x900/955/95550835.jpg)
  - Food for 2 days
 
