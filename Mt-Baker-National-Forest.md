@@ -17,7 +17,6 @@ Friday 4th Oct 2019
  - 2pm drive from Seattle to the cabin
 14013 Shuksan Rim Dr, Glacier, 98244, USA (exact Google Map link will be updated later
  - 4:30pm arrived at the cabin (sleeps 8 adults)
- - booking link https://www.mtbakerlodging.com/94401/?sd=10%2F04%2F2019&ed=10%2F06%2F2019&oc=8&ch=
  - short walk to explore the surrounding
  - 6:00pm prepare dinner
  - 8:00pm horror story telling by Matta
