@@ -5,7 +5,7 @@ This is the first part of 2 part series on exploring North Cascade National Park
 We will explore the Mt Baker National Forest along route Mt Baker Highway (AKA state route 542), north of North Cascade National Park.
 
 Teaser photo
-![img](https://www.wta.org/site_images/hikes/4.jpg-1/@@images/1e8dd6d5-9dc2-4139-8658-7e9de8e91ab7.jpeg)
+![img](https://github.com/HenryGau/SeattleWAHangoutPlan/raw/master/img/Heather_Meadows.jpg)
 
 ## Preparation
  - Cabin (sleep 8) booking link https://www.mtbakerlodging.com/94401/?sd=10%2F04%2F2019&ed=10%2F06%2F2019&oc=8&ch=
