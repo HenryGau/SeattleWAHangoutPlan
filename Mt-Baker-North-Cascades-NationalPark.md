@@ -31,7 +31,7 @@ OR
 
 Blue T Lodge (2 to 4 per room, queen bed)
 http://www.bluetlodge.com/
-![img](https://github.com/HenryGau/SeattleWAHangoutPlan/raw/master/img/MtBaker_BlueTLodge.gif)
+![img](https://github.com/HenryGau/SeattleWAHangoutPlan/raw/master/img/MtBaker_BlueTLodge.jpg)
 
 ## Plan 1: 2 day 1 night
 
