@@ -5,21 +5,19 @@ We will explore the Mt Baker National Forest along route Mt Baker Highway (AKA s
 
 ## Attractions
 
+### Heather Meadows visitor center
 ![img](https://github.com/HenryGau/SeattleWAHangoutPlan/raw/master/img/Heather_Meadows.jpg)
 
-Heather Meadows visitor center
 
+### Mount Shuksan reflected in Picture Lake
 ![img](https://github.com/HenryGau/SeattleWAHangoutPlan/raw/master/img/MtBaker_PictureLake.jpg)
 
-Mount Shuksan reflected in Picture Lake
-
+### Artist Point
 ![img](https://github.com/HenryGau/SeattleWAHangoutPlan/raw/master/img/MtBaker_ArtistPoint.jpg)
 
-Artist Point
 
+### Skyline Divide
 ![img](https://github.com/HenryGau/SeattleWAHangoutPlan/raw/master/img/MtBaker_SkylineDivide.jpeg)
-
-Skyline Divide
 
 ## Stay
 
