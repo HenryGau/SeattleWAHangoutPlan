@@ -23,7 +23,9 @@ We will explore the Mt Baker National Forest along route Mt Baker Highway (AKA s
 
 Cabin In The wood (sleeps 8)
 https://mtbakerlodging.com/search-results/
-![img](https://github.com/HenryGau/SeattleWAHangoutPlan/raw/master/img/MtBaker_CabinSleeps8.jpeg)
+![img](https://github.com/HenryGau/SeattleWAHangoutPlan/raw/master/img/MtBaker_Cabin_outside.jpeg)
+
+![img](https://github.com/HenryGau/SeattleWAHangoutPlan/raw/master/img/MtBakerCabin_interior.jpeg)
 
 Address https://goo.gl/maps/HKayiVj3CgLtqFzZ7
 
