@@ -38,17 +38,21 @@ Address https://goo.gl/maps/HKayiVj3CgLtqFzZ7
  - anti insect/mosquito cream/spray
  - food (see below)
 
-### Meals Prep
+### Meals Menu
 
 Friday dinner
  - Xôi mặn (Pheobie)
  - Lẩu / Korean soup (Duy) 
+ 
 Saturday lunch
  - Mì gói + chả lụa + lettuce (Duy)
+ 
 Saturday dinner
  - BBQ (Vân) 
+ 
 Sunday lunch
  - 8/9 ổ bánh mì + chả lụa + trứng chiên + dưa leo + cà chua + lettuce + nước tương Chinsu (Matta)
+ 
 Sunday dinner
  - lẩu nhà anh Long Lý (anh Long) 
 
