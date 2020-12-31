@@ -3,10 +3,10 @@ Nhà Hàng Lúa Nếp
 Khu bãi bồi, p. Cái Khế, Lê Lợi, Cái Khế, Ninh Kiều, Cần Thơ, Vietnam  
 https://goo.gl/maps/p9vJpyzsJ9HryYHP6  
 
-  cafe + nhà hàng view bến Ninh Kiều, thích hợp ăn tối  
-Restaurant & Café Lotus Ninh Kiều  
-2 Đường Hai Bà Trưng, Tân An, Ninh Kiều, Cần Thơ, Vietnam  
-https://goo.gl/maps/X7VwH7QjMS8xpn9H6  
+cafe + nhà hàng view bến Ninh Kiều, thích hợp ăn tối/cafe tối
+Hoa Cau Café
+04 Đường Hai Bà Trưng, Tân An, Ninh Kiều, Cần Thơ, Vietnam
+https://goo.gl/maps/Vj7yksTfPJvE9nHG9
 
   cháo sò huyết (cực ngon), mở từ 9AM-11PM, ngồi lề đường nhưng nấu rất ngon   
 Cháo Sò 98 ( Cô Út)  
