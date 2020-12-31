@@ -16,11 +16,6 @@ cháo sò huyết (cực ngon), mở từ 9AM-11PM, ngồi lề đường nhưng
 100 Lý Tự Trọng, An Cư, Ninh Kiều, Cần Thơ, Vietnam  
 https://g.page/CHAOSO1998?share  
 
-Quán chuyên nem nướng, nem nướng cuốn bánh tráng + bún + rau  
-Nem nướng Thanh Vân  
-17 Đại lộ Hoà Bình, Tân An, Ninh Kiều, Cần Thơ, Vietnam  
-https://goo.gl/maps/7penTBEx7xcjpCGTA  
-
 **Bánh canh cua/ghẹ Minh Thư**, nghe nói ngon  
 151 Trần Văn Khéo, Cái Khế, Ninh Kiều, Cần Thơ, Vietnam  
 https://g.page/Banhcanhtomhum?share  
@@ -29,6 +24,11 @@ Cá lóc nướng quấn bánh tráng + nhiều món nhậu
 **Quán Cá Lóc An**  
 15 Trần Văn Hoài, Xuân Khánh, Ninh Kiều, Cần Thơ, Vietnam  
 https://goo.gl/maps/XVvZqbWERHASwiys9  
+
+Quán chuyên nem nướng, nem nướng cuốn bánh tráng + bún + rau  
+**Nem nướng Thanh Vân**  
+17 Đại lộ Hoà Bình, Tân An, Ninh Kiều, Cần Thơ, Vietnam  
+https://goo.gl/maps/7penTBEx7xcjpCGTA  
 
 Đi bộ trên đường Đề Thám có nhiều quán bán bánh xèo, bánh pateso, mì hoành thánh, etc...  
 https://goo.gl/maps/8jvoRc2fHHnP4RHi7  
