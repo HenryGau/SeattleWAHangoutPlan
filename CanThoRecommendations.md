@@ -49,6 +49,11 @@ https://goo.gl/maps/1UgXhtcUgfnputuh7
 15 Lê Lợi, Cái Khế, Ninh Kiều, Cần Thơ, Vietnam  
 https://g.page/GheGoCanTho?share  
 
+Beer Garden  
+**Cáo Và Cừu Beer Garden**  
+50 Võ Văn Kiệt, An Hoà, Ninh Kiều, Cần Thơ, Vietnam  
+https://goo.gl/maps/Gk7WTHi5jd2QTagv8  
+
 Massage lành mạnh: dọc bến Ninh Kiều:  
 **Mekong Health and Beauty**  
 8 Đường Ngô Quyền, Tân An, Ninh Kiều, Cần Thơ, Vietnam  
