@@ -18,7 +18,7 @@ Drive from the motel to Portland (1h)
 
 visit Portland Japanese Garden (18.5$/person) (1-2h)
 
-![img](https://www.koin.com/wp-content/uploads/sites/10/2020/06/japanese-garden-waterfall.jpg)
+![img](https://i.pinimg.com/originals/40/eb/24/40eb241367f5e155b56f015b9483ef79.jpg)
 
 visit International Rose Test Garden (free) (1h-2h)
 ![img](https://media.cntraveler.com/photos/5c019bf28acb3b6fd9b86b9f/16:9/w_2560%2Cc_limit/CW0C97.jpg)
