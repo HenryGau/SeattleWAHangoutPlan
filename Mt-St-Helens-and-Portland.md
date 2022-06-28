@@ -18,7 +18,7 @@ Drive from the motel to Portland (1h)
 
 visit Portland Japanese Garden (18.5$/person) (1-2h)
 
-![img]([https://southsoundseniors.org/wp-content/uploads/2019/03/japanese-garden-koi-pond1-1200x750.jpg](https://www.koin.com/wp-content/uploads/sites/10/2020/06/japanese-garden-waterfall.jpg))
+![img]([[https://southsoundseniors.org/wp-content/uploads/2019/03/japanese-garden-koi-pond1-1200x750.jpg](https://www.mickeyshannon.com/photos/fall-at-the-flat-garden-portland-japanese-garden.jpg)]([https://www.koin.com/wp-content/uploads/sites/10/2020/06/japanese-garden-waterfall.jpg](https://www.mickeyshannon.com/photos/fall-at-the-flat-garden-portland-japanese-garden.jpg)))
 ![img](https://blog.architizer.com/wp-content/uploads/metalocus_portland_kengo-kuma_village-cultural-village_garden-house-bruce-forster_17-1024x683.jpg)
 
 visit International Rose Test Garden (free) (1h-2h)
