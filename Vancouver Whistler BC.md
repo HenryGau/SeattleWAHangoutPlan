@@ -2,6 +2,9 @@
 9AM Drive from Seattle -> Vancouver  
 12PM lunch in Vancouver  
 
+Kirin Seafood Restaurant (Richmond)
+7900 Westminster Hwy, Richmond, BC V6X 1A5, Canada
+
 <img src="https://media.timeout.com/images/105813570/750/562/image.jpg" width="600">
 
 2pm drive from Vancouver -> Whistler
@@ -30,9 +33,33 @@ for example Green Lake Trail Viewpoint, Green Lake
 Night 2 sleep in Whistler 
 
 ## Day 3
-9AM drive from Whistler -> Vancouver  
-12PM lunch in Vancouver  
+11AM drive from Whistler -> Vancouver  
 
-<img src="https://i1.wp.com/seonkyounglongest.com/wp-content/uploads/2020/09/Easy-Tonkotsu-26-mini.jpg?fit=1000%2C667&ssl=1" width="600">
+(1h drive)
 
-2pm drive from Vancouver -> Seattle
+12PM lunch in Garibaldi Highlands. 
+Umai Sushi & Grill. 
+40437 Tantalus Rd #1, Garibaldi Highlands, BC V0N 1T0, Canada
+
+<img src="http://umaisquamish.ca/img/Spicy%20Chirashi%20Bowl.jpg" width="600">
+
+visit Shannon Waterfall
+MRCR+R3 Squamish, British Columbia, Canada
+
+visit some scenic views points along the road
+ - Furry Creek Beach and Lookout  
+ - Britannia Beach Scenic Lookout  
+ - Porteau Cove Road Lookout  
+ - Illuminated Trestle Bridge    
+
+<img src="https://www.slrd.bc.ca/sites/default/files/styles/inside_page_banners/public/basic-pages/banners/SLRD_Britannia_View.JPG?itok=ENQYDdbl" width="600">
+
+ - Cypress Mountain Vancouver Outlook Cypress Pop-Up Village (3757 Cypress Bowl Road)
+
+<img src="https://as1.ftcdn.net/v2/jpg/04/53/56/30/1000_F_453563096_L7M9nT9Di9uyBn4jOTf14De9uPHrck63.jpg" width="600">
+
+6PM visit Richmond night market
+
+<img src="https://i.cbc.ca/1.6436708.1651274832!/fileImage/httpImage/image.jpg_gen/derivatives/16x9_780/richmond-night-market.jpg" width="600">
+
+8PM drive from Vancouver -> Seattle
