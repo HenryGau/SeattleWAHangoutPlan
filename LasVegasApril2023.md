@@ -3,7 +3,7 @@
 SEA - LAS **Sat, Apr 1 10:25 AM – 12:50 PM**  
 LAS - SEA **Tue, Apr 4 5:10 PM – 7:56 PM**
 
-ticket ~ 180$/pax
+ticket ~ 100$/pax
 
 ## Weather
 April   
